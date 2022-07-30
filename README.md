@@ -8,5 +8,6 @@
 
 >💬 Ask me about any tech related stuff.
 
->📫 Reach me by Email:arushisaha500@gmail.com and also connect to [Instagram : shasrm.isthasaha](https://www.instagram.com/sharm.isthasaha/?hl=en).
+>📫 Reach me by Email:arushisaha500@gmail.com and also connect to [Instagram : sharm.isthasaha](https://www.instagram.com/sharm.isthasaha/?hl=en).
+.
 
